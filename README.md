@@ -1,1 +1,3 @@
-akun sementara. Tapi kalau github nolak requestku yaudah jadi akun permanen
+~~akun sementara. Tapi kalau github nolak reinstatement request-ku yaudah jadi akun permanen~~
+
+Ditolak dong 🥰
